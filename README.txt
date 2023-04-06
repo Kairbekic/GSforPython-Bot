@@ -1,0 +1,1 @@
+Ссылка на саму таблицу - https://docs.google.com/spreadsheets/d/1xlEgz_yZ9iR2K5F_h9VuqgxRC59nBJvlXi7QXVMyCUs/edit#gid=0
